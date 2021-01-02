@@ -5,4 +5,11 @@ The Ancient Art of [Sacred Incense](http://home.sacredincense/) and the [Sacred 
 Go Burn One! [BhutanIncense.com](https://www.bhutanincense.com/lost-fragrance-of-the-mountain-gods-incense-sticks/). 
 ![image](https://user-images.githubusercontent.com/37987346/96677782-4b783000-133e-11eb-842e-d34871c3ea9e.png)
 
-[Buy, Sell, or Trade here ![image](https://user-images.githubusercontent.com/37987346/97064635-5a94f300-1575-11eb-93ae-fc71560b1571.png)](https://paxful.com/roots/buy-bitcoin/index?kiosk=WDZdGMqXk7M)
+
+## [INNER I NET COMPANY](http://shapereality.innerinetcompany.hns.to/)
+| [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
+ [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+
+
+# "I" As The Center Of Gravity Is The Seat Of Unity. 
+ # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
