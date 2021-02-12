@@ -2,7 +2,7 @@
 
 The Ancient Art of [Sacred Incense](http://home.sacredincense/) and the [Sacred Essence] from the Tradations Of Humanity and the [Sacred Vibes](http://home.sacredvibes/) Within Every Generation!
 
-Go Burn One! [BhutanIncense.com](https://www.bhutanincense.com/lost-fragrance-of-the-mountain-gods-incense-sticks/). 
+Go Burn One! [BhutanIncense.com](https://www.bhutanincense.com/lost-fragrance-of-the-mountain-gods-incense-sticks/). Or order from the [Garudashop](https://garudashop.com/collections/bhutanese-incense/products/the-lost-fragrance-of-the-mountain-gods-natural-bhutanese-incense-sticks)!
 ![image](https://user-images.githubusercontent.com/37987346/96677782-4b783000-133e-11eb-842e-d34871c3ea9e.png)
 
 
@@ -12,4 +12,4 @@ Go Burn One! [BhutanIncense.com](https://www.bhutanincense.com/lost-fragrance-of
 
 
 # "I" As The Center Of Gravity Is The Seat Of Unity. 
- # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
+ 
